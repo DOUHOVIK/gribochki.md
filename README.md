@@ -1,4 +1,4 @@
-# ВИНО 
+# МЕЧТА
 
 ![RAY](https://pp.userapi.com/c616916/v616916818/90b4/UqGEkN38eL4.jpg)
 
@@ -6,4 +6,4 @@
 
 *Рей Бредбери*
 
-[Подписывайтесь](https://vk.com/eudoxie_pnmv "Дуня")
+[Подписывайтесь](https://www.instagram.com/ddharma_bum/ "Дуня")
